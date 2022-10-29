@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @oronihasan
+- 👀 I’m interested in drawing, math and problem solving
+- 🌱 I’m currently learning programming
+- 📫 you can reach me @
